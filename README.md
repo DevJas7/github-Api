@@ -1,1 +1,1 @@
-Jasurbek Xusniddinov developer 
+Jasurbek Xusniddinov developer 💻💻💻
